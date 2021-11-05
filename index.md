@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "Crap Day Log"
 ---
 
-I'm glad you are here. I plan to talk about ...
+im in IT at  e m m e t t   o   b r i e n 
